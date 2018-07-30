@@ -5,4 +5,4 @@
 
 #### I may be far from the island of Guam, but the culture follows me where ever I go
 
-[BIO](bio)
+[A little about myself](bio)
