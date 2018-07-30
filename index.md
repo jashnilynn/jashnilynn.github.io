@@ -5,4 +5,4 @@
 
 #### You can take the girl from the island, but not the island from the girl
 
-[A little about myself](bio)
+[Get to know me](bio)
