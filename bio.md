@@ -6,7 +6,7 @@
 
 ![GUAM](GUAM.jpg)
 
-##### It's a hard tie between Guam's beaches and the food as one of the best thing about the island!
+##### It's a hard tie between Guam's beaches & the food as one of the best things on island!
 
 ![BREMERTON](Bremerton.jpg)
 
