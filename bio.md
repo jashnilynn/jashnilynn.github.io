@@ -25,10 +25,10 @@
 # Aside from traveling
 
 #### I have a few goals I have set for myself:
-1. Become a certified *Sign language interpreter*
-2. Start a *family* of my own
-3. Size down to a *minimalist lifestyle*
-4. ***Live my life to its fullest***
+##### 1. Become a certified *Sign language interpreter*
+##### 2. Start a *family* of my own
+##### 3. Size down to a *minimalist lifestyle*
+##### 4. ***Live my life to its fullest***
 
 ---
 
