@@ -8,15 +8,12 @@
 ##### It's a hard tie between Guam's beaches and the food as one of the best thing about the island!
 
 ![BREMERTON](Bremerton.jpg)
-
 ##### Yes, it may get gloomy in the PNW. However, the summers are amazingly beautiful!
 
 ![SANDIEGO](SD.jpg)
-
 ##### From late night cali burrito runs to early hikes, San digeo is by far a great place to live in your early 20's!
 
 ![IWAKUNI](IWK.jpg)
-
 ##### Japan spoils its locals with the numerous vending machines to its cheap food, but I'm not complaining!
 
 [Back to home](index)
