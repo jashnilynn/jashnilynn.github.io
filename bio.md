@@ -4,10 +4,10 @@ Born and raised on the beautiful island of Guam.  In 2008 I set some new roots i
 
 ![GUAM](GUAM.jpg)
 
-![Bremerton WA](bremertonWA.jpg)
+![BREMERTON](Bremerton.jpg)
 
-![SAN DIEGO](SD.jpg)
+![SANDIEGO](SD.jpg)
 
-![IWAKUNI](Miyajima.jpg)
+![IWAKUNI](IWK.jpg)
 
 [Back to home](index)
