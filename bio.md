@@ -5,7 +5,6 @@
 ---
 
 ![GUAM](GUAM.jpg)
-
 ##### It's a hard tie between Guam's beaches and the food as one of the best thing about the island!
 
 ![BREMERTON](Bremerton.jpg)
@@ -18,6 +17,6 @@
 
 ![IWAKUNI](IWK.jpg)
 
-##### Japan has been quite the journey, but luckily there's a quick train ride to different destinations!
+##### Japan spoils its locals with the numerous vending machines to its cheap food, but I'm not complaining!
 
 [Back to home](index)
