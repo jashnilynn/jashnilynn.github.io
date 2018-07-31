@@ -14,10 +14,10 @@
 
 ![SANDIEGO](SD.jpg)
 
-##### From late night cali burrito runs to early hikes, San digeo is by far a great place to live in your early 20's!
+##### From late night cali burrito runs to early hikes, San digeo is by far a great place to live!
 
 ![IWAKUNI](IWK.jpg)
 
-##### Japan spoils its locals with the numerous vending machines to its cheap food, but I'm not complaining!
+##### Japan spoils us with the numerous vending machines to its cheap food, but I'm not complaining!
 
 [Back to home](index)
