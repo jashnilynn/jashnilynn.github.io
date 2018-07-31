@@ -32,6 +32,6 @@
 
 ---
 
-[Check my Youtube channel](https://www.youtube.com/channel/UCxsBd-csrDEB4X4vCa3Bv8A)
+[Check out my youtube channel](https://www.youtube.com/channel/UCxsBd-csrDEB4X4vCa3Bv8A)
 
 [Back to home](index)
