@@ -10,6 +10,10 @@
 ##### 4. When finished ordering, say **Igo desu**, it means *that's all*.
 ##### 5. If you need the bill *split*, say **Betsu betsu, onegaishimasu** (split please). 
 ---
+### Coco Ichibanya
+##### Address: 1 Chome-16-17 Minamiiwakunimachi, Iwakuni, Yamaguchi Prefecture 740-0034
+##### Japanese Curry! For some this restuarant is overrated, however for the price and amount of food, this restaurant will always be one of my quick go to.  *If you're not feeling too hungry, get the **half order** of your usual --150g of rice and a drink on the side!*
+![Coco ichibanya](IWKCOCO.jpg)
 
 
 
