@@ -12,7 +12,7 @@
 ---
 ### Coco Ichibanya
 ##### Address: 1 Chome-16-17 Minamiiwakunimachi, Iwakuni, Yamaguchi Prefecture 740-0034
-##### Japanese Curry! For some this restuarant is overrated, however for the price and amount of food, this restaurant will always be one of my quick go to.  *If you're not feeling too hungry, get the **half order** of your usual --150g of rice and a drink on the side!*
+##### Japanese Curry!  For some this restuarant is overrated, however for the price and amount of food, this restaurant will always be one of my quick go to.  My favorite dish is either the **crispy chicken** or the **chicken katsu** with cheese and spice level 3.  Be careful when choosing the level of spiceness, because depending on who is the cook of the day --the spice level can vary.  Level 10 is the highest, if you were to reach this level, props to you!  *If you're not feeling too hungry, get the **half order** of your usual --150g of rice,curry, and a drink on the side!* **Eigo (English) menu is avialable and either yen or debit card is acceptable**
 ![Coco ichibanya](IWKCOCO.jpg)
 
 
