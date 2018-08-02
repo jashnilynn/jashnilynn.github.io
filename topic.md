@@ -10,7 +10,7 @@
 
 ![Konibini](CONBINIDRINKS.jpg)  ![Konbini](CONBINIFOOD.jpg)  ![Konbini](CONBINIGOODS.jpg) 
 
-![Iwakuni](IWKBRIDGE.jpg)    ![Iwakuni](IWKBRIDGE.jpg) 
+![Iwakuni](IWKBRIDGE.jpg)    ![Iwakuni](IWKCASTLEVIEW.jpg) 
 
 
 [Back to home](index)
