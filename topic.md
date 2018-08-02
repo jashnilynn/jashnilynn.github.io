@@ -12,6 +12,6 @@
 
 ![Iwakuni](IWKBRIDGE.jpg)    ![Iwakuni](IWKCASTLEVIEW.jpg) 
 
-
+![Iwakuni](IWKFISHBOAT.jpg) ![Iwakuni](IWKFISH.jpg)
 [Back to home](index)
 
