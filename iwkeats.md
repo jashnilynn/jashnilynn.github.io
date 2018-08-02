@@ -9,6 +9,9 @@
 ##### 3. Say **Sumimasusen** to get the employee's attention if there's no button to press when you're ready to order.
 ##### 4. When finished ordering, say **Igo desu**, it means *that's all*.
 ##### 5. If you need the bill *split*, say **Betsu betsu, onegaishimasu** (split please). 
+---
+
+
 
 ---
 [Go back](topic)
