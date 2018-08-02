@@ -10,4 +10,8 @@
 
 [Get to know me](bio)
 
-[Learn more of my current home, JAPAN](topic)
+<details>
+<summary>Learn more of my current home, Japan</summary>
+<br>
+[Yamaguchi Prefecture](topic)
+<details>
