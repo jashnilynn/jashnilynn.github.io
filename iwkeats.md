@@ -21,7 +21,7 @@
 ##### Address: 1 Chome-10-17 Imazumachi, Iwakuni, Yamaguchi Prefecture 740-001  (park across the street in ticketed parking lot)
 ##### Hours: Sunday - Saturday 1100 - 1430 *&* 1700 - 2300.  *Closed on Tuesdays*!
 ##### Okonomiyaki (japanese pancake)!  If you like to have a show before digging into your food, this place is up your alley.  I'm not talking about a circus show, but rather the cooks smoothing out the batter, making the egg golden brown, stacking ingredients on top of each other, and the best part --having to flip everything all together!  This dish can either be indulged by one person or can be shared between two.  The atmosphere in the restaurant is unique with a book shelf stacked with manga (Japanese anime) for the customers to read.  Hang out, watch the show, and don't forget to order a drink with tapioca!  **Eigo (Engligh) menu is avialable and either yen or debit card is acceptable**
-![Kinba](IWKKIN.jpg)
+![Kinba](IWKKINBA.jpg)
 ---
 [Go back](topic)
 
