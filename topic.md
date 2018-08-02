@@ -14,6 +14,6 @@
 ![Iwakuni](IWKCASTLE.jpg) ![Iwakuni](IWKCASTLEVIEW.jpg) 
 
 ---
-
+#### [Need ideas of places to eat](iwkeats)
 [Back to home](index)
 
