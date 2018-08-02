@@ -13,5 +13,5 @@
 <details>
 <summary>Learn more of my current home, Japan</summary>
 <br>
-[Yamaguchi Prefecture](topic)
+[Get to know me](bio)
 <details>
