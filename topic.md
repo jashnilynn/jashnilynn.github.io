@@ -10,11 +10,11 @@
 
 ![Konibini](CONBINIDRINKS.jpg)  ![Konbini](CONBINIGOODS.jpg) 
 
-![Iwakuni](IWKBRIDGE.jpg)    ![Iwakuni](IWKCASTLEVIEW.jpg) 
+![Iwakuni](IWKBRIDGE.jpg)   ![Iwakuni](IWKCASTLE.jpg) 
 
 ![Iwakuni](IWKFISHBOAT.jpg) ![Iwakuni](IWKFISH.jpg)
 
-![Iwakuni](IWKSUNRISE.jpg)  ![Iwakuni](IWKCASTLE.jpg)
+![Iwakuni](IWKSUNRISE.jpg)  ![Iwakuni](IWKCASTLEVIEW.jpg) 
 
 ---
 [Back to home](index)
