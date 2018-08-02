@@ -33,7 +33,7 @@
 ##### Address: 1 Chome-5-22 Muronokimachi, Iwakuni, Yamaguchi Prefecture 740-0021
 ##### Hours: Open everyday: 1100 - 2200  (*When dining, take note of their calendar on the door, they may have a personal day off*)
 ##### RAMEN! *Tonkatsu ramen is more on the rich, thick, and creamy side of the ramen choices*.  This restuarant is simple, which is what ramen should be.  The menu consists of 6 different types of ramen dishes, but it really varies between what toppings are in the ramen.  Other side dishes that go perfect with the ramen are *chahan (fried rice), gyoza, and *karaage* (fried chicken).  Don't forget to ask for a stamp card, because you'll find yourself coming back for more!  **Eigo (Engligh) menu is avialable and yen is only acceptable**
-![Yamabiko](IWKYAM.jpg)
+![Yamabiko](IWKYAM2.jpg)
 
 ---
 
