@@ -13,10 +13,7 @@
 ##### If you were to either make the trek up or take the cable cart to visit the Iwakuni castle, it is a perfect oppotunity for a history lesson.  The architecture that is behind the making of the castle and bridge is phenomenonal.  Also, the tour inside the castle showcases the past years of uniforms, weapons, dishware, transportation, and more of the Emperor and the town's history. There is a small fee for both the cable cart and castle entrance.  Don't let the fees stop you from exploring though!  From the Iwakuni castle you can view the Kintaikyo, the town, and the Nishiki river and you can either take a picture or enjoy the view just for yourself. 
 ![Iwakuni](IWKCASTLE.jpg) ![Iwakuni](IWKCASTLEVIEW.jpg) 
 
-
-
-
- 
 ---
+
 [Back to home](index)
 
