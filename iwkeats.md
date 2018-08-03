@@ -32,7 +32,7 @@
 ### YAMABIKO
 ##### Address: 1 Chome-5-22 Muronokimachi, Iwakuni, Yamaguchi Prefecture 740-0021
 ##### Hours: Open everyday: 1100 - 2200  (*When dining, take note of their calendar on the door, they may have a personal day off*).
-##### ***RAMEN!*** *Tonkatsu ramen is more on the rich, thick, and creamy side of the ramen choices*.  This restuarant is simple, which is what ramen should be.  The menu consists of 6 different types of ramen dishes, but it really varies between what toppings are in the ramen.  Other side dishes that go perfect with the ramen are *chahan (fried rice), gyoza, and *karaage* (fried chicken).  Don't forget to ask for a stamp card, because you'll find yourself coming back for more!  **Eigo (Engligh) menu is avialable and yen is only acceptable**
+##### ***RAMEN!*** Tonkatsu ramen is more on the rich, thick, and creamy side of the ramen choices.  This restuarant is simple, which is what ramen should be.  The menu consists of 6 different types of ramen dishes, but it really varies between what toppings are in the ramen.  Other side dishes that go perfect with the ramen are *chahan (fried rice), gyoza, and *karaage* (fried chicken).  Don't forget to ask for a stamp card, because you'll find yourself coming back for more!  **Eigo (Engligh) menu is avialable and yen is only acceptable**
 ![Yamabiko](IWKYAM.jpg)
 
 ---
@@ -43,6 +43,7 @@
 ##### ***SMOOTHIES!***  Vege trip is in an odd location, don't worry you're not the only one to think this.  You'll have to drive through the Iwakuni Lotus fields before finding this petite vibrant stand.  Order a freshly juiced beverage, or a cute fruit stacked smoothie, or my favorite --their pizza.  Everything on the menu is light and perfect for a small lunch or a sweet tooth craving.  Relax inside while admiring the chic interior design Vege Trip has to offer.  Don't forget to take a picture and tag them in it!  **Eigo (Enligh) menu is available and either debit or yen is acceptable**
 ![VegeTrip](IWKVEGE.jpg)
 
+---
 
 [Go back](topic)
 
