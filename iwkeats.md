@@ -61,6 +61,6 @@
 
 ---
 
-[Go back](topic)
+[<1>](topic)
 
 [Back to home](index)
