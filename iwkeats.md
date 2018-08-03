@@ -39,7 +39,7 @@
 
 ### VEGE TRIP
 ##### Address: Iwakuni City Marketplace 5 Chome, 11-1, Ozumachi, Iwakuni City, Yamaguchi Prefecture
-##### Hours: Weekdays 700 - 1600. Weekends 1000 - 1600.
+##### Hours: Weekdays 0700 - 1600.  Weekends 1000 - 1600.
 ##### ***SMOOTHIES!***  Vege trip is in an odd location, don't worry you're not the only one to think this.  You'll have to drive through the Iwakuni Lotus fields before finding this petite vibrant stand.  Order a freshly juiced beverage, or a cute fruit stacked smoothie, or my favorite --their pizza.  Everything on the menu is light and perfect for a small lunch or a sweet tooth craving.  Relax inside while admiring the chic interior design Vege Trip has to offer.  Don't forget to take a picture and tag them in it!  **Eigo (Enligh) menu is available and either debit or yen is acceptable**
 ![VegeTrip](IWKVEGE.jpg)
 
