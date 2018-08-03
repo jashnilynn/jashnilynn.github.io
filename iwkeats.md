@@ -31,7 +31,7 @@
 
 ### ***YAMABIKO***
 ##### Address: 1 Chome-5-22 Muronokimachi, Iwakuni, Yamaguchi Prefecture 740-0021
-##### Hours: Open every day: 1100 - 2200  (*When dining, take note of their calendar on the door, they may have a personal day off*).
+##### Hours: Open every day 1100 - 2200  (*When dining, take note of their calendar on the door, they may have a personal day off*).
 ##### ***RAMEN!*** Tonkatsu ramen is more on the rich, thick, and creamy side of the ramen choices.  This restuarant is simple, which is what ramen should be.  The menu consists of 6 different types of ramen dishes, but it really varies between what toppings are in the ramen.  Other side dishes that go perfect with the ramen are *chahan (fried rice), gyoza, and *karaage* (fried chicken).  Don't forget to ask for a stamp card, because you'll find yourself coming back for more!  **Eigo (English) menu is avialable and yen is only acceptable**
 ![Yamabiko](IWKYAM.jpg)
 
@@ -47,11 +47,16 @@
 
 ### ***VITAL YAWD***
 ##### Address:  2 Chome-2-2 Marifumachi, Iwakuni, Yamaguchi Prefecture 740-0018 (park in ticketed parking lots)
-##### Hours: Open every day: 1800 - 0100
+##### Hours: Open every day 1800 - 0100
 ##### ***JAMAICAN CUISINE!***  Vital Yawd has an ambience of chilling in the backyard on a perfect night.  Upon entering, you'll be greeted with a warm welcome.  Choose a seat -either at the bar, high top tables, or the long family style tables.  You have a variety of menu items; sandwiches, rice dishes, and pizza.  My favorite go to is their jerk chicken sandwich, jerk chicken pizza, and of course the coconut icecream!  The food portion is great for splitting with someone, that way you'll have room for dessert that you wouldn't want to skip out on.  Don't forget to check out their posters for live music!  **Eigo (English) menu is available and either debit or yen is acceptable**
 ![VitalYawd](IWKVITAL.jpg)  ![VitalYawd](IWKVITAL2.jpg)
 
 ---
+
+### ***Very Berry Soup***
+##### Address: 3 Chome-18-41 Muronokimachi, Iwakuni, Yamaguchi Prefecture 740-0021
+##### Hours: Sunday - Saturday 1100 - 1500. *Closed on Mondays*!
+##### ***SWEET & SALTY OPTIONS!***  If you are craving for either 
 
 [Go back](topic)
 
