@@ -1,7 +1,7 @@
 # YAMAGUCHI PREFECTURE 
 ---
 
-### IWAKUNI
+### **IWAKUNI**
 
 ##### Iwakuni is home for my husband and I as well as over 100,000 other residents.  The town has many unique sights and activities to endulge in.  
 ##### From **konbinis** (convenient stores) to large shopping malls, you can find something that you may not need, but you must buy because it's either *kawaii* (cute) or just one of a kind.  Konbinis are a perfect one quick stop for either a snack, a drink, an ATM, or even house slippers.  7-11s are my favorite go to for seasonal icecream and their *'american dog'* (corn dog), plus they take either yen, debit cards, or even the Suica or ICCOCA card!
