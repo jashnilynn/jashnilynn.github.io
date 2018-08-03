@@ -12,7 +12,7 @@
 
 [Learn more of my current home, Japan](topic)
 
-##### <details>
+<details>
 <summary>Yamaguchi Prefecture</summary>
 <br>
 [Iwakuni Eats](iwkeats)
