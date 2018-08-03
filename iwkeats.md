@@ -56,7 +56,10 @@
 ### ***Very Berry Soup***
 ##### Address: 3 Chome-18-41 Muronokimachi, Iwakuni, Yamaguchi Prefecture 740-0021
 ##### Hours: Sunday - Saturday 1100 - 1500. *Closed on Mondays*!
-##### ***SWEET & SALTY OPTIONS!***  If you are craving for either 
+##### ***SWEET & SALTY!***  If you are craving for either a crepe filled with toppings or a soup paired with a salad, you have come to the right place.  If none of those dishes are what you're looking for, Very Berry Soup has a handful of drink options too.  The seating inside is very cozy and a perfect place to dine in and do some studying or homework.  My favorite dish is their french onion soup, paired with fresh baked bread, a salad, and a drink!  For the price Very Berry Soup has to offer, you may find yourself returning more than once. 
+![VeryBerrySoup](IWKVERY.jpg)
+
+---
 
 [Go back](topic)
 
