@@ -5,7 +5,7 @@
 
 ### Tips when dining out:
 ##### 1. Carry **yen** at **all times**!  You can withdraw yen from ATMs at either 7-11s, Post Offices, and local grocery stores.
-##### 2. Ask for an **Eigo** (Engligh) menu!  However, it's _not_ guaranteed they'll have one. 
+##### 2. Ask for an **Eigo** (Engligh) menu!  However, it's not guaranteed they'll always have one. 
 ##### 3. Say **Sumimasusen** to get the employee's attention if there's no button to press when you're ready to order.
 ##### 4. When finished ordering, say **Igo desu**, it means *that's all*.
 ##### 5. If you need the bill *split*, say **Betsu betsu, onegaishimasu** (split please). 
@@ -15,7 +15,7 @@
 ### COCO ICHIBANYA
 ##### Address: 1 Chome-16-17 Minamiiwakunimachi, Iwakuni, Yamaguchi Prefecture 740-0034 near Youme Town.  
 ##### Address: 1 Chome-3-14 Marifumachi, Iwakuni, Yamaguchi Prefecture 740-0018 near Iwakuni *Eki* (train station).
-##### Hours: Open everyday: 1100 - 0000
+##### Hours: Open every day: 1100 - 0000
 ##### ***JAPANESE CURRY!***  For some this restuarant is overrated, however for the price and amount of food, this restaurant will always be one of my quick go to.  My favorite dish is either the **crispy chicken** or the **chicken katsu** with cheese and spice level 3.  Be careful when choosing the level of spiceness, because depending on who is the cook of the day --the spice level can vary.  Level 10 is the highest, if you were to reach this level, props to you!  *If you're not feeling too hungry, get the **half order** of your usual --150g of rice,curry, and a drink on the side!* **Eigo (English) menu is avialable and either yen or debit card is acceptable**
 ![Coco ichibanya](IWKCOCO.jpg)
 
@@ -31,7 +31,7 @@
 
 ### YAMABIKO
 ##### Address: 1 Chome-5-22 Muronokimachi, Iwakuni, Yamaguchi Prefecture 740-0021
-##### Hours: Open everyday: 1100 - 2200  (*When dining, take note of their calendar on the door, they may have a personal day off*).
+##### Hours: Open every day: 1100 - 2200  (*When dining, take note of their calendar on the door, they may have a personal day off*).
 ##### ***RAMEN!*** Tonkatsu ramen is more on the rich, thick, and creamy side of the ramen choices.  This restuarant is simple, which is what ramen should be.  The menu consists of 6 different types of ramen dishes, but it really varies between what toppings are in the ramen.  Other side dishes that go perfect with the ramen are *chahan (fried rice), gyoza, and *karaage* (fried chicken).  Don't forget to ask for a stamp card, because you'll find yourself coming back for more!  **Eigo (Engligh) menu is avialable and yen is only acceptable**
 ![Yamabiko](IWKYAM.jpg)
 
@@ -44,6 +44,11 @@
 ![VegeTrip](IWKVEGE.jpg)
 
 ---
+
+### VITAL YARD
+##### Address:  2 Chome-2-2 Marifumachi, Iwakuni, Yamaguchi Prefecture 740-0018
+##### Hours: Open every day: 1800 - 0100
+##### ***JAMAICAN CUISINE!***
 
 [Go back](topic)
 
