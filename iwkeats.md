@@ -5,7 +5,7 @@
 
 ### Tips when dining out:
 ##### 1. Carry **yen** at **all times**!  You can withdraw yen from ATMs at either 7-11s, Post Offices, and local grocery stores.
-##### 2. Ask for an **Eigo** (Engligh) menu!  However, it's not guaranteed they'll always have one. 
+##### 2. Ask for an **Eigo** (English) menu!  However, it's not guaranteed they'll always have one. 
 ##### 3. Say **Sumimasusen** to get the employee's attention if there's no button to press when you're ready to order.
 ##### 4. When finished ordering, say **Igo desu**, it means *that's all*.
 ##### 5. If you need the bill *split*, say **Betsu betsu, onegaishimasu** (split please). 
