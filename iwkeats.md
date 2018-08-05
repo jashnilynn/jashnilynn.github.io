@@ -61,6 +61,14 @@
 
 ---
 
+### ***SUSHI GO ROUND (SUSHI 120)***
+##### Address: 〒740-0032 Yamaguchi Prefecture, Iwakuni, 尾津町１丁目７−１４
+##### Hours: Open every day 1100 - 2130
+##### ***SUSHI!***  When in Japan, one must eat sushi!  This place is perfect for just solo trip or with the whole family or friends.  However, keep in mind during dinner time this place can be busy -so don't forget to put your name on their waiting list.  If you are hungry for udon noodle soup, sushi, or dessert, you have come to the right place.  The prices of the item varies on the color of the plate, posted around the restaurant are the prices with their color coded plate.  120 yen is the cheapest and the price can vary to 800 yen.  Don't be afraid to try new dishes when visiting, that's what makes the experience more fun!  My favorite dish is *unagi* which means eel.  Don't knock it until you try it!  **Eigo (English) menu is available and either devit or yen is acceptable**
+![Sushi120](IWKSUSHI.jpg)  ![Sushi120](IWKSUSHI2.jpg)
+
+---
+
 [< PAGE 1>](topic)
 
 [Back to home](index)
